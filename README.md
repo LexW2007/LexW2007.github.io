@@ -8,11 +8,11 @@
 - ***Please thrift with me.***
 - <ins>Not-so</ins> wicked witch.
 ## Fav albums right now...
-- [We're Not Here to Be Loved - Fleshwater]([url](https://music.apple.com/us/album/were-not-here-to-be-loved/1647440836))
-- [Le Tigre - Le Tigre]([url](https://music.apple.com/us/album/le-tigre/1813861028))
-- [Ego Death At A Bachelorette Party - Hayley Williams]([url](https://music.apple.com/us/album/ego-death-at-a-bachelorette-party/1833006180))
-- [Sunbather - Deafheaven]([url](https://music.apple.com/us/album/sunbather/652038965))
-- [Dr. Feelgood - Mötley Crüe]([url](https://music.apple.com/us/album/dr-feelgood/1764395673))
+- [We're Not Here to Be Loved - Fleshwater](https://music.apple.com/us/album/were-not-here-to-be-loved/1647440836)
+- [Le Tigre - Le Tigre](https://music.apple.com/us/album/le-tigre/1813861028)
+- [Ego Death At A Bachelorette Party - Hayley Williams](https://music.apple.com/us/album/ego-death-at-a-bachelorette-party/1833006180)
+- [Sunbather - Deafheaven](https://music.apple.com/us/album/sunbather/652038965)
+- [Dr. Feelgood - Mötley Crüe](https://music.apple.com/us/album/dr-feelgood/1764395673)
 ## Things I'm excited for...
 - Learning magic
 - **Listening to metal**
