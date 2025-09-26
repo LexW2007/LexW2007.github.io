@@ -14,8 +14,8 @@
 - [Sunbather - Deafheaven](https://music.apple.com/us/album/sunbather/652038965)
 - [Dr. Feelgood - Mötley Crüe](https://music.apple.com/us/album/dr-feelgood/1764395673)
 ## Things I'm excited for...
-- Learning magic
+- *Learning magic*
 - **Listening to metal**
 - Fall
-- Coffee, energy drinks, caffeine.
-- Web development, CS, coding, and making cool computer stuff :>
+- Coffee... energy drinks... caffeine.
+- Web development, CS, coding, and making cool software n' stuff :>
